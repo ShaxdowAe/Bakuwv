@@ -1,5 +1,4 @@
- yo, I’m @Bakuwv
-and im hungry, so dniuf lol
+helloo im hungry btw 🍉
 
 <!---
 Bakuwv/Bakuwv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
